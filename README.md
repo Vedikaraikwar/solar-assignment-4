@@ -1,1 +1,0 @@
-# solar-assignment-4
